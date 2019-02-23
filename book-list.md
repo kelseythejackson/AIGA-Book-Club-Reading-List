@@ -5,7 +5,10 @@
 
 ## Confirmed
 - - - -
-• 101 Contrarian Ideas About Advertising
+• 101 Contrarian Ideas About Advertising - Bob Hoffman
+
+## Potential
+- - - -
 • The Design of Everyday Things - Don Norman
 • Smarter Faster Better: The Secrets of Being Productive in Life and Business - Charles Duhigg
 • Talent is Overrated: What Really Separates World-Class Performers from Everybody Else - Geoff Colvin
